@@ -1,5 +1,1 @@
-# See you later
-
-## Stargazers over time
-
-[![Stargazers over time](https://starchart.cc/lxk0301/jd_scripts.svg)](https://starchart.cc/lxk0301/jd_scripts)
+![](https://ae01.alicdn.com/kf/U189b6f14573d41aab2735a65f3c5f85eW.jpg)
